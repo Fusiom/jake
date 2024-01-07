@@ -4,5 +4,5 @@ lies about everything, is extremely toxic to everyone around him,
 and tries to act harmful and threaten ppl while being harmless.
 
 This is a website to commemorate him. Have fun!!
-<a href="https://jakepiggot.com">Website</a>
+<a href="http://jakepiggot.com">Find it here</a>
 
